@@ -1,0 +1,1 @@
+There is a lack of a unified policy framework governing resource sharing among Indian libraries. Additionally, copyright restrictions often limit the sharing of digital resources, complicating the process of interlibrary cooperation.

@@ -1,0 +1,1 @@
+India has a vast network of libraries that includes academic, public, and special libraries. However, the distribution of resources across these libraries is uneven, with urban libraries being better equipped than their rural counterparts. Indian libraries also face challenges in digitizing their collections, which is a critical component of modern resource-sharing practices.

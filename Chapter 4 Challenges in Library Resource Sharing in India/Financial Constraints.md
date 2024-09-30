@@ -1,0 +1,1 @@
+Many libraries, particularly those in rural and semi-urban areas, operate on limited budgets. This restricts their ability to invest in the necessary technology and infrastructure required for efficient resource sharing.

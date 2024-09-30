@@ -1,0 +1,1 @@
+Many libraries do not have adequately trained staff to manage resource-sharing initiatives. The absence of proper training and awareness programs impedes the effective implementation of such systems.

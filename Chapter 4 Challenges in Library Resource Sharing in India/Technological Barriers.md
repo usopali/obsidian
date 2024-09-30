@@ -1,0 +1,1 @@
+The digital divide is a significant issue in India, with many libraries lacking the necessary digital infrastructure to participate in modern resource-sharing systems. Poor Internet connectivity and a lack of digital literacy further exacerbate this issue.
